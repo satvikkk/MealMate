@@ -1,1 +1,1 @@
-https://devpost.com/software/mealmate-foji1d#updates
+https://devpost.com/software/mealmate-foji1d
